@@ -43,4 +43,6 @@ This article is optimized for the keyword "abacus vendor marketplace market-abac
 <a href="http://pzdv7uupqjj73qiq4ah6ivaczhb2wgj5mqtntetupzzvolvvuaecspyd.onion"><img src="/local/header.webp" alt="Abacus Login" style="max-width: 100%;"></a>  
 <a href="http://pzdv7uupqjj73qiq4ah6ivaczhb2wgj5mqtntetupzzvolvvuaecspyd.onion"><img src="/local/config.webp" alt="Abacus Register" style="max-width: 100%;"></a> 
 
-Update:  07/14/2025 04-17-14 url is reachable
+
+
+Update:  18 July Link is now active and responsive
