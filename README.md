@@ -45,4 +45,6 @@ This article is optimized for the keyword "abacus vendor marketplace market-abac
 
 
 
-Update:  18 July Link is now active and responsive
+
+
+Update:  21 July
