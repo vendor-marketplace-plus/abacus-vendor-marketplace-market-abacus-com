@@ -61,4 +61,6 @@ This article is optimized for the keyword "abacus vendor marketplace market-abac
 
 
 
-Update:  Friday 12 September 2025 I'm happy to report that the link is now accessible.
+
+
+Update:  18.09.2025
